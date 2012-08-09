@@ -3,7 +3,7 @@ mtlb
 
 **Make the Logo Bigger!**
 
-*Are your client's self-important pricks who believe the size of their logo must reflect the enormity of their lame awesomeness?*
+*Are your clients self-important pricks who believe the size of their logo must reflect the enormity of their lame awesomeness?*
 
 *Tired of fulfilling requests to make the logo bigger?*
 
